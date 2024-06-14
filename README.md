@@ -1,3 +1,3 @@
-## **Homework 06**
-# _I sumbit on 14th of June_
+# _Homework 06_
+## _14th of June_
  
